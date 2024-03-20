@@ -1,5 +1,5 @@
 #### Design resources for non-designers
-All free! If you like a tool, click the “buy me a coffee” button
+If you like/use a free tool a lot, click the “buy me a coffee” button!
 
 
 Tl;dr
